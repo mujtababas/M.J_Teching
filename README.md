@@ -1,1 +1,1 @@
-# M.J_Teching
+# educational.github.io
